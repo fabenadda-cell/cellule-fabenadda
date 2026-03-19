@@ -19,11 +19,11 @@ I am a passionate student at Amar Telidji University, blending technical logic w
 
 ---
 
-### 🎨 Art & Design:
+### 🎨 Art & Design
 I love bringing aesthetics to the digital world. Check out my creative work!
 
 ---
 
 ### 📬 Connect with me:
 - 📸 Instagram: [𝕭𝖚𝖟 𝕶𝖗𝖆𝖑𝖎ç𝖊𝖘𝖎 ❄️
-- 03--59--20]
+-03--59--20 ]
